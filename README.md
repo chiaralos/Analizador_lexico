@@ -1,1 +1,0 @@
-# Propiedades_de_redes
